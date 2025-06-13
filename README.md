@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **naveen322.singh@gmail.com**
 
-- 📄 Know about my experiences [https://tinyurl.com/2ynkdszw](https://tinyurl.com/2ynkdszw)
+- 📄 Know about my experiences [[https://tinyurl.com/2ynkdszw](https://drive.google.com/file/d/1T6rPjL37DfPVCHJuQ_fzo7BvVj3H1yK1/view)]([https://tinyurl.com/2ynkdszw](https://drive.google.com/file/d/1T6rPjL37DfPVCHJuQ_fzo7BvVj3H1yK1/view))
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
